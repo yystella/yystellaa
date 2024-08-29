@@ -1,1 +1,3 @@
-# yystellaa
+# yystellaa 🎀
+
+usando esse espaço para projetos :)
